@@ -14,7 +14,7 @@ Hello! I'm Ayush, a **12th grade student** from **Sunriseville School, Noida**, 
 
 🖥️ Currently preparing for:
 - **Board Exams**
-- **NSAT by Scaler School of Technology**
+- **NSET by Scaler School of Technology**
 
 ---
 
