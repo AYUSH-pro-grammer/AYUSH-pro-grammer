@@ -12,10 +12,6 @@ Hello! I'm Ayush, a **12th grade student** from **Sunriseville School, Noida**, 
 
 - 😄 Pronouns: he/him  
 
-🖥️ Currently preparing for:
-- **Board Exams**
-- **NSET by Scaler School of Technology**
-
 ---
 
 ## 🥅 Future Goals  
